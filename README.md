@@ -1,2 +1,2 @@
 # voidconv1
-isk
+idk it will kill your pc
